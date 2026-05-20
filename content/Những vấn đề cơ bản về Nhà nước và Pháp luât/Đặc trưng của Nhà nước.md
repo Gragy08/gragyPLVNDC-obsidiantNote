@@ -1,0 +1,5 @@
+- 1. Phân chia dân cư thành các đơn vị hành chính lạnh thổ và quản lý
+- 2. Thiết lập quyền lực cộng đồng đặc biệt tách rời khỏi xã hội và áp đặt lên toàn xã hội.
+- 3. Có chủ quyền Quốc gia.
+- 4. Quy định và thu thuế một cách bắt buộc
+- 5. Ban hành pháp luật và xác lập trật tự pháp luật đối với toàn xã hội.

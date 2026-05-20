@@ -1,0 +1,8 @@
+- **Tính giai cấp:** 
+	- Nhà nước là công cụ để giai cấp thống trị thực hiện sự thống trị của giai cấp mình đối với các giai cấp và tầng lớp khác trong xã hội.
+	- Sự thống trị trong xã hội và quản lý Nhà nước được thực hiện trên 03 phương tiện: kinh tế, chính trị và tư tưởng.
+		- Kinh tế: Giai cấp cầm quyền xác lập quyền lực kinh tế bằng cách xác lập và bảo vệ chế độ tư hữu của giai cấp thống trị, đặc biệt lag chế độ sở hữu với tư liệu sản xuất chủ yếu
+		- Chính trị: Giai cấp thống trị thiết lập và nắm quyền kiểm soát bộ máy Nhà nước và những công cụ bạo lực vật chất trong bộ máy Nhà nước như quân đội, cảnh sát.
+		- Tư tưởng: Giai cấp thống trị hình thành, hoàn thiện hệ tư tưởng của giai cấp mình và tuyên truyền tư tưởng ấy trong xã hội bằng Nhà nước, đồng thời hạn chế, cấm đoán các tư tưởng thù địch, đối lập.
+- **Tính xã hội:** 
+	- Thể thiện thông qua việc Nhà nước phản ánh ý chí chung, lợi ích chung của xã hội và cũng thể hiện trong việc thực hiện những nhiệm vụ chung của Nhà nước như: Tổ chức sản xuất, Xây dựng hệ thống thủy lợi, Chống ô nhiễm, dịch bệnh, Bảo vệ trật tự cộng đồng...

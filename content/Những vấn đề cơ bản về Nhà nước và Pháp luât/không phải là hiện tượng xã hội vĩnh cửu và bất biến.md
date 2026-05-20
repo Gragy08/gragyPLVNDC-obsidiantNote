@@ -1,0 +1,9 @@
+Theo quan điểm của Chủ nghĩa Mác - Lênin, nhà nước **không phải** là một hiện tượng vĩnh cửu, tồn tại mãi mãi và cũng **không** tồn tại trong mọi chế độ xã hội. Nhà nước thực chất là một **hiện tượng lịch sử**, nghĩa là nó có quá trình phát sinh, phát triển và sẽ tiêu vong.
+
+Dưới đây là lời giải thích chi tiết cho nhận định này:
+
+**1. Tại sao nhà nước KHÔNG tồn tại trong mọi chế độ xã hội?** Như chúng ta đã phân tích ở hình thái Cộng sản nguyên thủy, xã hội loài người ban đầu chưa hề có nhà nước. Lúc bấy giờ kinh tế dựa trên chế độ công hữu, không có tư hữu tài sản, do đó không có sự phân hóa giàu nghèo và không có mâu thuẫn giai cấp. Quyền lực lúc này chỉ là quyền lực xã hội do các thành viên tự quản lý. Nhà nước chỉ xuất hiện ở một giai đoạn phát triển nhất định của lịch sử khi xã hội đã bị phân chia thành các giai cấp đối kháng.
+
+**2. Tại sao nhà nước KHÔNG tồn tại mãi mãi?** Theo Mác và Lênin, nhà nước bản chất là một công cụ bạo lực do giai cấp thống trị lập ra để đàn áp các giai cấp khác. Do đó, sự tồn tại của nhà nước gắn liền với sự tồn tại của giai cấp và mâu thuẫn giai cấp. Khi xã hội loài người phát triển đến đỉnh cao là hình thái kinh tế - xã hội **Cộng sản chủ nghĩa**, chế độ tư hữu về tư liệu sản xuất bị thủ tiêu hoàn toàn, kéo theo việc xóa bỏ mọi ranh giới và mâu thuẫn giai cấp. Khi xã hội không còn giai cấp, không còn sự bóc lột, thì công cụ dùng để trấn áp (là Nhà nước) sẽ mất đi lý do tồn tại và tự "tiêu vong". Thay vào đó, nó sẽ chuyển hóa thành một hệ thống tự quản lý của cộng đồng xã hội.
+
+**Kết luận:** Nhà nước chỉ tồn tại trong những chế độ xã hội có giai cấp (bao gồm: Chiếm hữu nô lệ, Phong kiến, Tư bản chủ nghĩa và trong thời kỳ quá độ là Xã hội chủ nghĩa). Khi những điều kiện sản sinh ra nhà nước (chế độ tư hữu và mâu thuẫn giai cấp) không còn, nhà nước sẽ biến mất.
