@@ -1,0 +1,3 @@
+- **Tính giai cấp:** Pháp luật phản ánh ý chí Nhà nước của giai cấp thống trị. Pháp luật là nhân tố điều chỉnh về mặt giai cấp các quan hệ xã hội nhằm hướng các quan hệ xã hội điều chỉnh theo một trật tự phù hợp với ý chí của giai cấp thống trị.
+    
+- **Tính xã hội:** Ở mức độ ít hay nhiều (tùy thuộc vào hoàn cảnh trong mỗi giai đoạn cụ thể), pháp luật còn thể hiện ý chí và lợi ích của các giai tầng khác trong xã hội.

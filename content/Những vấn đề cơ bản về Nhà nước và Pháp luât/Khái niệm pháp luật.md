@@ -1,0 +1,1 @@
+Pháp luật là hệ thống các quy tắc xử sự chung do Nhà nước ban hành (hoặc thừa nhận) để điều chỉnh các quan hệ xã hội phù hợp với ý chí của giai cấp thống trị và được Nhà nước bảo đảm thực hiện.
